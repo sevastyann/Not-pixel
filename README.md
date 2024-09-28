@@ -1,4 +1,4 @@
-Not Pixel from the creators of Notcoin
+# Not Pixel from the creators of Notcoin
 Great start. Now it's official🪙
 
 Welcome to [Not⠀pixel](https://t.me/notpixel/app?startapp=f6808700825) , a 1000x1000 digital canvas where millions of users come together to create a collective masterpiece, pixel by pixel.
